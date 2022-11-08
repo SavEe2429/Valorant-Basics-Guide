@@ -1,2 +1,2 @@
-# Sec2_G2
+# Valorant Basics Guide
  
